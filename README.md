@@ -1,10 +1,12 @@
+![](https://komarev.com/ghpvc/?username=fevertownie&color=FFCCEA)
+
 haii im cyrn, usually at the tree close to the docks (i *do not engage in proship discourse myself*, and i'd prefer not to label myself as a "proshipper" or "anti" b4 anyone asks, i just like sitting there :P) if im on webfishing with a code in my name then you're 100% free to join!!
 
 ![](https://i.pinimg.com/originals/c6/e9/d3/c6e9d35080f9706109590469e6d03ec7.gif)
 
-online = ontab and ready 2 talk
+online = ontab, u can chat!
 
-idle = offtab drawing/doomscrolling but if you wanna talk you're free to shoot me a whisper ^_^
+idle = offtab drawing/doomscrolling but if you wanna talk you're free to shoot me a whisper ^_^ i check on ponytown tab every now and then so i may see you
 
 offline = afk / playing game on steam, you can whisper but i might not see it
 
