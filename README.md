@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=fevertownie&color=FFCCEA&style=plastic&label=made+u+look)
+![](https://komarev.com/ghpvc/?username=fevertownie&color=FFCCEA&style=plastic&label=made+u+look) [stop killing games!](https://www.stopkillinggames.com/)
 
 haii im cyrn, usually at the tree close to the docks (i *do not engage in proship discourse myself*, and i'd prefer not to label myself as a "proshipper" or "anti" b4 anyone asks, i just like sitting there :P) if im on webfishing with a code in my name then you're 100% free to join!!
 
